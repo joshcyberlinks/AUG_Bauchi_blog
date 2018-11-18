@@ -1,4 +1,4 @@
-2018 Atlassian UserGroup Bauchi ReadMe File
+2018 Atlassian UserGroup Bauchi 
 
 © 2018 AUG Bauchi. All rights reserved.
 
